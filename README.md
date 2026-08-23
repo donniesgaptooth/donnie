@@ -17,8 +17,8 @@
 
 𝔦 𝔩𝔬𝔳𝔢 𝔪𝔞𝔲𝔩 ♡
 
-account’s that have mentioned me : 
-pt-walk-of-fame + @pt-hall-of-media + @fans-town + @pt-contributors + @pt-fashion + @ponychievements
+<sup><sub>mentioned by: pt-walk-of-fame + pt-hall-of-media + fans-town + pt-hall-of-media + fans-town + pt-contributors + pt-fashion + ponychivements + charactersofpt</sub></sup></div>
+
 
 
 ·:*¨༺ ♱✮♱ ༻¨*:·
