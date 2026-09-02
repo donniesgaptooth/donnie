@@ -17,7 +17,7 @@
 
 𝔦 𝔩𝔬𝔳𝔢 𝔪𝔞𝔲𝔩 ♡
 
-<sup><sub>mentioned by: pt-walk-of-fame + pt-hall-of-media + fans-town + pt-hall-of-media + fans-town + pt-contributors + pt-fashion + ponychivements + charactersofpt</sub></sup></div>
+<sup><sub>mentioned by: pt-walk-of-fame + pt-hall-of-media + fans-town + pt-hall-of-media + fans-town + pt-contributors + pt-fashion + ponychivements + charactersofpt + folktown</sub></sup></div>
 
 
 
